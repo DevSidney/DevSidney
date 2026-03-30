@@ -36,7 +36,7 @@
 
 ## 📫 Contato
 - 📧 Email: [sidney270santos@gmail.com]  
-- 💼 LinkedIn: [Meu perfil](https://www.linkedin.com/in/sidney-cordeiro-9141933bb?utm_source=share_via&utm_content=profile&utm_medium=member_android)
+- 💼 LinkedIn: [Meu perfil](linkedin.com/in/SidneycSantos)
 
 ---
 
